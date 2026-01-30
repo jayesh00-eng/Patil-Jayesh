@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **full stack**
 
-- 📫 How to reach me **sahildara152@gmail.com**
+- 📫 How to reach me **jayeshpatiledu@gmail.com**
 
 - ⚡ Fun fact **I am funny**
 
